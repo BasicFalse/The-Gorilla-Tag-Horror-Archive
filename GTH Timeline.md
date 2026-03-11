@@ -1,3 +1,6 @@
+> [!IMPORTANT]
+The Gorilla Tag Horror Timeline is slightly inaccurate and should be taken with a grain of salt, especially for any dates marked with a ?.
+
 # GTH Start | ~Aug, 13, 2023
 
 (Aug, ?) 	Owner switched from Lemmon + Tsunami to just Lemmon.
